@@ -4,7 +4,7 @@ This email is to notify you that a Norton 360 subscription order has been proces
 
 Billing Information
 Product Name: Norton 360 Premium Protection
-Transaction Reference: NOR954-9132548
+Transaction Reference: NOR954-81524
 Total Charged: $438.00 USD
 Renewal Date: April 15, 2026
 Customer Care: +1 ~833~ 436~8462
